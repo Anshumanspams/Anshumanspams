@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Anshumanspams
 - 👀 I’m interested in videogames
 - 🌱 I’m currently learning nothing tbh
-- 💞️ I’m looking to marriage with you
+- 💞️ I’m looking to nothing 
 - 😄 Pronouns: He 
 - ⚡ Fun fact: You already loves me alot
 <!---
